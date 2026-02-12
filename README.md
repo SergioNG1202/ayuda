@@ -1,0 +1,2 @@
+# ayuda
+agarra por favor
